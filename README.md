@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @6ixty-9ine
 - 👀 I’m interested in enriching my knowledge!
 - 🌱 I’m currently learning how to use my SELF!
-- 💞️ I’m looking to collaborate with Good bad@$$ folk 
+- 💞️ I’m looking to collaborate with Technology
 - 📫 How to reach me : I'm reachable.
 
 <!---
